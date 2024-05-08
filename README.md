@@ -1,4 +1,3 @@
 # server-univ
-aaayeahd adsfjaseifjasiel;fjasfeupdatetaejlae
 
-lgoglglgooggolglaglgldslgagoasgldlag
+기도만 만번 깎는 학부생
